@@ -1,4 +1,4 @@
-## Oii meus amores, sou o Brenno, estudante de computação na UERJ, seja muito bem-vinde ao meu git ☺
+## Oii meus amores, sou o Brenno, estudante de computação na UERJ, sejam muito bem-vindes ao meu git ☺
 
 
 ▸ 🦄 Estudando Java (no momento)
