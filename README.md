@@ -5,7 +5,7 @@
 
 ▸ 🎧 100% viciado em música
 
-▸ 👨🏾‍💻 Pronomes: ele/dele
+▸ 👨🏾‍💻 Pronomes: ele/dele/they
 
 ▸ 🌈 lGbtqia+
 
